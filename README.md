@@ -1,1 +1,0 @@
-készülőben van az
